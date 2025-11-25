@@ -3,9 +3,8 @@
  <img src='https://files.catbox.moe/jyvmaa.gif'
 
    <br>　　<br>
-<b> mourn or saoirse. ciaran is also ok!! <br>
-  <b> knight artorias yume, non-sharing maybe. just don't be a hardass <br>
-  <b> minor. new strawpage is a wip, please be patient <br>
+<b> mourn or saoirse. ciaran is also ok! <br>
+  <b> most if not all of my yumes are non-sharing, I MAY block doubles if I feel like it; oomfs are excluded from this <br>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://en.pronouns.page/@wolfknight">pronouns</a>
