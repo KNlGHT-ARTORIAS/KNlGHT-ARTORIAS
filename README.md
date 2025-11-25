@@ -4,7 +4,8 @@
 
    <br>　　<br>
 <b> mourn or saoirse. ciaran is also ok! <br>
-  <b> 　　 </b>
+
+ 
   <b> most if not all of my yumes are non-sharing, I MAY block doubles if I feel like it; oomfs are excluded from this <br>
 
  
