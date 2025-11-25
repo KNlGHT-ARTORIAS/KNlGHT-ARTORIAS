@@ -9,7 +9,7 @@
 
   <b> most if not all of my yumes are non-sharing, I MAY <b>
    
-  <b> block doubles but usually I don't; oomfs are excluded from this ᐡ ᐧ ﻌ ᐧ ᐡ <br>
+  <b> block doubles but usually I don't; oomfs are excluded from this 　ᐡ ᐧ ﻌ ᐧ ᐡ <br>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://en.pronouns.page/@wolfknight">pronouns</a>
