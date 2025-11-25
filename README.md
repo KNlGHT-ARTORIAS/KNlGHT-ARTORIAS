@@ -6,7 +6,8 @@
 <b> mourn or saoirse. ciaran is also ok! <br>
 
  
-  <b> most if not all of my yumes are non-sharing, I MAY block doubles if I feel like it; oomfs are excluded from this <br>
+  <b> most if not all of my yumes are non-sharing, I MAY <b>
+  <b> block doubles if I feel like it; oomfs are excluded from this <br>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://en.pronouns.page/@wolfknight">pronouns</a>
