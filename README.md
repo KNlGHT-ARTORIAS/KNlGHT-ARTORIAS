@@ -11,7 +11,7 @@
 
   <b> Artorias yume is non-sharing, I MAY <b>
    
-  <b> block doubles if they're being pushy about it. <b>
+  <b> block doubles.. maybe maybe.. it depends. <b>
      
   <b> Usually I don't. oomfs are excluded from this　ᐡ ᐧ ﻌ ᐧ ᐡ <br>
 
