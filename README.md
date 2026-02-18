@@ -6,13 +6,13 @@
 
 
    <br>　　<br>
-<b> mourn or saoirse. ciaran is also ok! <br>
+<b> mourn or sif <br>
    
-<b> really shy at first but I love making friends!! <b>
+<b> really shy at first but I love making friends :9 <b>
    
 ——————————
 
-  <b> Artorias yume is non-sharing.. ok..? ᐡ ᐧ ﻌ ᐧ ᐡ <br>
+  <b> I really like Artorias <br>
 
  
  <a href="https://rentry.co/artoriasdotcom">rentry</a> : <a href="https://mourn.atabook.org">ata</a> : <a href="https://pronouns.cc/@KNIGHT-ARTORIAS">pronouns</a>
