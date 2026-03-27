@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src='https://i.pinimg.com/1200x/a1/d9/d6/a1d9d671c79165408f28a1c64860018b.jpg' title='✦'
+ <img src='https://www5.lunapic.com/do-not-link-here-use-hosting-instead/177465460646284101?58876853179' title='✦'
  
    <br>　　<br>
 
