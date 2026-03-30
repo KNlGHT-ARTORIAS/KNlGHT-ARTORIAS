@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src='https://www5.lunapic.com/do-not-link-here-use-hosting-instead/177465460646284101?58876853179' title='✦'
+ <img src='https://files.catbox.moe/skoam9.jpeg' title='✦'
  
    <br>　　<br>
 
