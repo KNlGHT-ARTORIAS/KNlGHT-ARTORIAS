@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src='https://files.catbox.moe/skoam9.jpeg' title='✦'
+ <img src='https://files.catbox.moe/ne7v7v.png' title='✦'
  
    <br>　　<br>
 
