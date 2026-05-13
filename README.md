@@ -8,8 +8,8 @@
    <br>　　<br>
 <b> mourn or sif <br>
    
-<b> hvy soulsborne enthusiast
-multifandom<b>
+<b> hvy soulsborne enthusiast <b>
+<b> multifandom <b>
 
      
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
