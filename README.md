@@ -6,7 +6,7 @@
 
 
    <br>　　<br>
-<b> mourn     or     sif <br>
+<b> mourn or sif <br>
    
 <b> really shy at first but I love making friends :9 !! 
 I tend to get along with people very well and relatively quickly if we share the same interests <b>
