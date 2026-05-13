@@ -8,8 +8,8 @@
    <br>　　<br>
 <b> mourn or sif <br>
    
-<b> really shy at first but I love making friends :9 !! 
-I tend to get along with people very well and relatively quickly if we share the same interests <b>
+<b> hvy soulsborne enthusiast
+multifandom<b>
 
      
 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
