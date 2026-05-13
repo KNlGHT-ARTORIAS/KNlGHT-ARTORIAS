@@ -10,7 +10,7 @@
    
 <b> hvy soulsborne enthusiast <b>
 
-<b> multifandom <b>
+<b> m̶u̶l̶t̶i̶f̶a̶n̶d̶o̶m̶ <b>
 
      
 ・・・・・
