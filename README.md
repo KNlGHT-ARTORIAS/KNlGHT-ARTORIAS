@@ -11,7 +11,7 @@
 <b> really shy at first but I love making friends :9 !! 
 I tend to get along with people very well and relatively quickly if we share the same interests <b>
    
-——————————
+𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒
  
 <br><a href="https://steamcommunity.com/profiles/76561199478007567/">steam prof. (add me !!)</a><br>
 
