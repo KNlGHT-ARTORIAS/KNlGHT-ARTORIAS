@@ -1,6 +1,6 @@
 <div align='center'> 
   <b> 　　 </b>
- <img src='https://files.catbox.moe/5ytol4.webp' title='✦'
+ <img src='https://www1.lunapic.com/do-not-link-here-use-hosting-instead/177865153657727793?13964452169' title='✦'
  
    <br>　　<br>
 
