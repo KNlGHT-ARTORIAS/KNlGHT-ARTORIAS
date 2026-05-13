@@ -6,7 +6,7 @@
 
 
    <br>　　<br>
-<b> mourn or sif <br>
+<b> 𝒎𝒐𝒖𝒓𝒏 or s͟i͟f͟ <br>
    
 <b> hvy soulsborne enthusiast <b>
 
