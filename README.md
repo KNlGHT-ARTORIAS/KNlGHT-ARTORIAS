@@ -7,8 +7,6 @@
  
    <br>　　<br>
 
-
-   <br>　　<br>
 <b> 𝒎𝒐𝒖𝒓𝒏 or s͟i͟f͟ <br>
    
 <b> read rentry b4 interacting!! gonna rmk it soon <b>
