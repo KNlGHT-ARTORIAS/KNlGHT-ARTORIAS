@@ -7,11 +7,11 @@
   
    <br>　　<br>
 
-<b> 𝒎𝒐𝒖𝒓𝒏 or s͟i͟f͟ <br>
+<b> 𝒎𝒐𝒖𝒓𝒏 ᵒʳ s͟i͟f͟ <br>
    
 <b> read rentry b4 interacting!! gonna rmk it soon <b>
 
-<b> multifandom <b>
+<b> ʍᴜʟᴛɪꜰᴀɴᴅᴏᴍ <b>
 
      
 zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
