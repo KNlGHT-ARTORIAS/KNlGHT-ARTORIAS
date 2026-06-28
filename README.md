@@ -1,6 +1,5 @@
 <div align='center'> 
-  <b> 　test　 </b>
-  
+  <b> 　　 </b>
  <img src='https://i.imgur.com/S7YmEcb.png' title='✦'
  
    <br>　　<br>
