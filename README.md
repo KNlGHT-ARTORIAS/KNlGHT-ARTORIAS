@@ -8,9 +8,9 @@
    <br>　　<br>
 <b> 𝒎𝒐𝒖𝒓𝒏 or s͟i͟f͟ <br>
    
-<b> hvy soulsborne enthusiast <b>
+<b> read rentry b4 interacting!! gonna rmk it soon <b>
 
-<b> 𝘮𝘶𝘭𝘵𝘪𝘧𝘢𝘯𝘥𝘰𝘮 <b>
+<b> multifandom <b>
 
      
 zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
