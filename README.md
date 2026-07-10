@@ -3,7 +3,7 @@
      <br>　　<br>
 <div align='center'> 
     <b> 　　 </b>
-<img src='https://files.catbox.moe/vrd2ud.gif' title='.'
+<img src='https://files.catbox.moe/vrd2ud.gif'
   
    <br>　　<br>
 
