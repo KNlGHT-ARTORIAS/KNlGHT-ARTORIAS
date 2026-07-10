@@ -2,6 +2,7 @@
   <b> 　ʸᵒᵘ'ʳᵉ ʲᵘˢᵗ ᵃˢ ᵍᵘᶦˡᵗʸ ᵃˢ ᵗʰᵉᵐ　 </b>
      <br>　　<br>
 <div align='center'> 
+    <b> 　　 </b>
 <img src='https://files.catbox.moe/l3iuro.gif' title='✦'
   
    <br>　　<br>
