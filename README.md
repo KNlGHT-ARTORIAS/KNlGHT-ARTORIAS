@@ -3,7 +3,7 @@
      <br>　　<br>
 <div align='center'> 
   <b> 　　 </b>
-<img src='https://i.pinimg.com/originals/40/b4/d6/40b4d632fda40aff5cb3cfd83c92f434.gif' title='✦'
+<img src='https://files.catbox.moe/l3iuro.gif' title='✦'
   
    <br>　　<br>
 
