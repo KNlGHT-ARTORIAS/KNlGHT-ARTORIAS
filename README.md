@@ -7,9 +7,9 @@
   
    <br>　　<br>
 
-<b> 𝒎𝒐𝒖𝒓𝒏 ᵒʳ s͟i͟f͟ <br>
+<b> 𝒎𝒐𝒖𝒓𝒏 ᵒʳ fenrir <br>
    
-<b> read rentry b4 interacting!! gonna rmk it soon <b>
+<b> read rentry b4 interacting!! <b>
 
 <b> ʍᴜʟᴛɪꜰᴀɴᴅᴏᴍ <b>
 
