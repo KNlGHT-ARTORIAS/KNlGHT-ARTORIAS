@@ -10,7 +10,8 @@
    
 <b> read rentry b4 interacting!! <b>
 
-<b> ʍᴜʟᴛɪꜰᴀɴᴅᴏᴍ <b>
+<div align='center'> 
+<img src='https://files.catbox.moe/jai2uj.png'
 
      
 zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
