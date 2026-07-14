@@ -12,7 +12,6 @@
 
 <div align='center'> 
 <img src='https://files.catbox.moe/jai2uj.png'
-
      
 zᶻ   ૮˶- ﻌ -˶ა⌒)ᦱ
  
