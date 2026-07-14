@@ -2,7 +2,7 @@
   <b> 　ʸᵒᵘ'ʳᵉ ʲᵘˢᵗ ᵃˢ ᵍᵘᶦˡᵗʸ ᵃˢ ᵗʰᵉᵐ　 </b>
      <br>　　<br>
 <div align='center'> 
-<b> 　　 </b>
+
 <img src='https://files.catbox.moe/zi3qlx.png'
   
    <br>　　<br>
