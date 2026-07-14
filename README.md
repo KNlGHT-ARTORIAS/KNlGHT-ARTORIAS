@@ -1,8 +1,7 @@
 <div align='center'>
   <b> 　ʸᵒᵘ'ʳᵉ ʲᵘˢᵗ ᵃˢ ᵍᵘᶦˡᵗʸ ᵃˢ ᵗʰᵉᵐ　 </b>
      <br>　　<br>
-<div align='center'> 
-
+<div align='center'>
 <img src='https://files.catbox.moe/zi3qlx.png'
   
    <br>　　<br>
